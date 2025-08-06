@@ -4,4 +4,4 @@
 **Technology:** Excel.
 
 **Resources:**  
-https://www.youtube.com/watch?v=Z7hPEwCzk2s&list=PLUaB-1hjhk8Hyd5NiPQ9CND82vNodlFF5&index=3
+https://www.youtube.com/watch?v=_jmiEGZ6PIY&list=PLUaB-1hjhk8Hyd5NiPQ9CND82vNodlFF5&index=6
